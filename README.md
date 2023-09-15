@@ -6,4 +6,4 @@
 <br>
 🔭 I’m one of the Leading Member of Waycup.
 <br>
-💻 https://github.com/mridul-vibin/mridul-vibin Check Mu Stuff OUT!!
+💻 https://github.com/mridul-vibin/mridul-vibin Check My Stuff OUT!!
